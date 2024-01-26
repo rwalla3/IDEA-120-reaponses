@@ -15,7 +15,7 @@
 
 <!--Contemporary toos for creating a Gesamstkunstwerk-->
 
-I feel like there must be an infinite number of ways to combine tools and be an "experience architect". I can't help but think an "experience architect" would be called a "designer" today. The design process as a tool is compelling because it boils this act down into doable chunks (Empathize, Define, Ideate, Deliver, Test). 
+I feel like there must be an infinite number of ways to combine tools and be an "experience architect". I can't help but think an "experience architect" would be called a "designer" today. The design process as a tool is compelling because it boils this act down to doable steps (Empathize, Define, Ideate, Deliver, Test). 
 
 As far as tools for creating Gesamstkunstwerk, I think initially of advertising via posters or social media, and how it informs how you approach a movie. I'm reminded of how a lot of brands use memes now as a form of promotion and something that came to mind is the Barbie/Oppenheimer meme from earlier last year. I don't believe this was an intentional marketing move on any part of the filmmakers, but it shows how memes create culture. In this case, Barbenheimer had a big impact on how many people experienced both films; some people made a day out of it and did a double feature, people created and sold merchandise about it. The two films are now linked by this meme and it sparked a genuine dialogue on the nature of social media and community. I'm not sure how well this example fits though because memes kind of evolve on their own, I'm not sure if anyone can be the "architect" of a meme.
 
