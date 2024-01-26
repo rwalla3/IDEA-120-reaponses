@@ -1,4 +1,5 @@
-## Chris Salter, "Entangled" response  
+# Chris Salter, "Entangled" response  
+### January 25, 2024  
 
 <!--Brainstorm
  - Posters/marketing
