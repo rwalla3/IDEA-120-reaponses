@@ -1,4 +1,4 @@
-## Chris Salter, "Entangled" Response  
+## Chris Salter, "Entangled" response  
 
 <!--Brainstorm
  - Posters/marketing
