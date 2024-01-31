@@ -1,2 +1,2 @@
 ### January 29, 2024  
-# Response: "The Rhetoric of the Image" - Roland Barthes (1999)  
+# Roland Barthes, "The Rhetoric of the Image" (1999) response
