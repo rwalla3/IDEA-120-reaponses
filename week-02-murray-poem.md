@@ -5,5 +5,6 @@ time to go online...
 hello puter, hello world...  
 *tap tap scroll scroll* i love it here, the world is my oyster! **(^V^)**  
 *tap tap scroll scro-* (^v^)...(^o^)...(^-^)...**(-_-)**...(T-T)...**<(o_o)>**...(x_x)    
-(shellfish allergy)  
+[shellfish allergy]
+
 
