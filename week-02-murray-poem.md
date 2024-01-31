@@ -4,22 +4,16 @@
 ### hello world (T-T)
 
 
-if = (the world is my oyster)  
-click click click  
-[\(^v^)/]  
-[\(^o^)/]  
-[(^w^)>]  
-[(^-^)>]  
- 
+(^v^)...(^o^)...(^w^)    
+*click click click*   
+(^-^)...**(-_-)**...**(o_o)**    
+*scroll scroll scroll*     
+...(0_~)...(T-T)...(x_x)    
+  
 
-**(-_-)**  
-**(o_o)**  
-(0_~)  
-(x_x)    
+if this world is my oyster
 
-then = (i am allergic to shellfish)   
-scroll scroll scroll  
-
+then i am allergic to shellfish
 
 
  
