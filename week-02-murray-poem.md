@@ -1,5 +1,5 @@
 ### January 30, 2024  
-# Response/Poem: "From Additive to Expressive Form" - Janet Murray (1997)  
+# Janet Murray, "From Additive to Expressive Form" (1997) response
 
 hello? yes?     
 can i ask you something? why?      
