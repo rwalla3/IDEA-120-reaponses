@@ -3,8 +3,7 @@
 
 time to go online...  
 hello puter, hello world...  
-*tip tap scroll scroll* i love it here, the world is my oyster! (^V^)  
-*tip tap scroll scro-*...(^O^)...(^o^)...(^-^)...**(-_-)**...**(@_@)**...(o_o)...(+_+)  
+*tip tap scroll scroll* i love it here, the world is my oyster! **\(^V^)/**  
+*tip tap scroll scro-*...**(^O^)**...**(^o^)**...**(^-^ )**...**( -_-)**...**(;_;)**...**(@_@)**...**(+_+)**    
 (shellfish allergy)  
-
 
