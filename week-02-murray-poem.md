@@ -7,4 +7,4 @@
 if this net-world is my oyster,      
 *scroll* (^-^) *scroll* **(-_-)** *scroll* **(o_o)**  
 then i have a shellfish allergy.        
-(0_0)...(~_*)...(x_x)  
+(0_0)...(~_#)...(x_x)  
