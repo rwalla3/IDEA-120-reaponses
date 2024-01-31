@@ -6,7 +6,7 @@ hello? - i'm here
 can i ask you something - why?    
 why do you think? - why do you care?   
 can you be fr? - why?  
-T-T ok lol  
+T-T  
 
 [Are These Feelings Real? (Her)](https://youtu.be/3n5muEWaE_Q?si=xlhLSRST7qYoyrkg)  
 
