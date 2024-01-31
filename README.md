@@ -1,1 +1,1 @@
-Main repository for IDEA 120 responses
+Repo. for IDEA 120 responses
