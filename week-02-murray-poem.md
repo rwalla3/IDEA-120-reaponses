@@ -4,7 +4,7 @@
 time to go ~online~ 
 hello puter, hello world...  
 *tap tap scroll scroll* i love it here! the world is my oyster! **(^V^)**  
-*tap tap scroll scro-* (^v^)...(^o^)...(^-^)...**(-_-)**...**<(o_o)>**...(T-T)...(x-x)    
+*tap tap scroll scro-* (^v^)...(^o^)...(^-^)...**(-_-)**...**<(o_o)>**...(T-T)...(x_x)    
 
 
 
