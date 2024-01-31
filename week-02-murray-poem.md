@@ -9,9 +9,9 @@ T-T
 
 [Are These Feelings Real? (Her, 2013)](https://youtu.be/3n5muEWaE_Q?si=xlhLSRST7qYoyrkg)  
 
-![i -luv-my-puter](https://github.com/rwalla3/IDEA-120-responses-rwalla3/assets/157409525/28b8751a-4b98-4a11-ad10-5a90235a4153)  
-
 ![dumbbot](https://github.com/rwalla3/IDEA-120-responses-rwalla3/assets/157409525/a08b30c5-74c9-4aa7-9dd4-58d4e10eb2ad)  
+
+![i -luv-my-puter](https://github.com/rwalla3/IDEA-120-responses-rwalla3/assets/157409525/28b8751a-4b98-4a11-ad10-5a90235a4153)  
 
 <!--
 *click* (^v^) *click* (^o^) *click* (^w^)  
