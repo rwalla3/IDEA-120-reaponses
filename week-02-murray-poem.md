@@ -7,6 +7,6 @@
 *finds computer* yippee! (^w^)  
 *tap tap scroll scroll* the world is my oyster! **(^V^)**          
 (^v^)...(^o^)...(^~^)...**(-_-)**...**<(o_o)>**...(T-T)...(x_x)          
-                                                *(shellfish allergy)*    
+.                                                .*(shellfish allergy)*    
 
 
