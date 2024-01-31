@@ -3,12 +3,18 @@
 
 ### hello world (T-T)
 
-*tap tap tap* 
-the world is my oyster 
-and i am allergic to shellfish
+ 
 
-
-
-\(^V^)/  
+*click click click*
+[\(^v^)/]...[\(^o^)/]...[(^w^)>]...[(^-^)>]...  if = (the world is my oyster)
+*tap tap tap*
+...**[(-_-)]**...**[<(o_o)>]**...[(0_~)]...[(x_x)]  then = (i am allergic to shellfish)
 *scroll scroll scroll*
-(^v^)...(^o^)...(^-^)...**(-_-)**...**(o_o)**...(0_~)...(x_x)
+
+
+
+ 
+
+
+
+
