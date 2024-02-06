@@ -1,5 +1,5 @@
 ### January 29, 2024  
-# Hot and Cold Media examples  
+# Hot and Cold Media - examples  
 
 Hot: Requires **little input** and engages just a **few senses**.  
 Cold: Requires **a lot of engagement**; we have to **immerse ourselves** in the medium and **participate**.  
