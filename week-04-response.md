@@ -5,7 +5,7 @@ Hot: Requires **little input** and engages just a **few senses**.
 Cold: Requires **a lot of engagement**; we have to **immerse ourselves** in the medium and **participate**.  
 
 *Hot media example: Short form video (TikTok, YouTube Reels, etc.)*  
-  Short form video content is an example of hot media because it requires very little effort to consume. These videos tend to be short and attention grabbing; paired with algorithms which generate personalized feeds, this kind of media takes very little effort to engage with.   
+  Short form video content is an example of hot media because it requires very little effort to consume. These videos tend to be short and attention grabbing; paired with algorithms which generate personalized feeds, this kind of media is not difficult to engage with and appeals to our visual and auditory senses.   
   
 ![youtube-shorts-1](https://github.com/rwalla3/IDEA-120-responses-rwalla3/assets/157409525/aa34bef8-2df1-4883-93f1-2dca5d801f84)  
   
